@@ -1,0 +1,1 @@
+# Hemingway-Editor-3.0.7-Crack
